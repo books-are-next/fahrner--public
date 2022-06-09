@@ -3,8 +3,6 @@ title: Dědek
 contentType: prose
 ---
 
-  
-
 Obdivovaný titul ViDr. měl Dědek na dveřích garsonky. Jeho tatínek byl hlavním architektem města, a když začal Dědek studovat na fakultě češtinu a dějepis, nebyl problém zařídit mu bydlení poblíž školy. Nešlo o přepych, spíše o satisfakci za to, že kvůli svým rodičům nesměl studovat v Praze, odkud se museli kdysi z politických důvodů stáhnout do pohraničí.
 
 Dědek nebydlel sám, ale se spolužačkou Monikou, a aby utáhli nájem a výdaje na domácnost, chodil občas na noční směny do chemičky a Monika na odpolední do prádelny nemocnice, kousek od fakulty.

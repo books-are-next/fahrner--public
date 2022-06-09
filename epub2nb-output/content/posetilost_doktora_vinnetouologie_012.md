@@ -3,8 +3,6 @@ title: Jak se vyhnout kopcům
 contentType: prose
 ---
 
-  
-
 Neodvážil jsem se tenkrát tu neznámou oslovit. Ale přestat na ni myslet jsem také nedokázal. A vyčítal jsem si tu svoji neschopnost. Strašně jsem si ji vyčítal a vracel se na to nádraží a doufal, že se ještě někdy objeví a já budu statečnější.
 
 Začal jsem si připadat ve skalách sám a brával s sebou alespoň Bláhu. Soutěskami se valila oblaka dýmu, mezi škvírami v prknech boudy na Loupežnické skále se protahoval kouř a jednou mezi šluky Bláha rozhodl, že taková krajina je jako stvořená k romantickému výletu na dvojkole.

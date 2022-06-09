@@ -3,8 +3,6 @@ title: Monika
 contentType: prose
 ---
 
-  
-
 Když se Monika nastěhovala k Dědkovi a začala chodit na brigády do nemocniční prádelny, brávala si tam vyřazené doktorské pláště, košile a kalhoty, barvila je a batikovala a chodila v nich upnutá až po krk, aby si jí už nikdy nevšímal žádný jiný muž než Dědek.
 
 Když nastoupila do práce, začalo na ni všechno padat. Do té doby se mohla stýkat jen se svými kamarády. Teď ale trávila čas v práci, mezi lidmi různého věku, které si nevybrala a ani si s nimi nerozuměla. Dědek byl daleko a jen občas se dostal do Ústí z Liptovského Mikuláše a my, kteří ještě studovali, nemohli jejím problémům rozumět. Monika se upnula na představu, že otěhotní. Ale stále se to nějak nedařilo a nakonec ji ovládl strach, že děti nemůže mít vůbec.

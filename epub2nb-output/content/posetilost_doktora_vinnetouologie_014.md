@@ -3,8 +3,6 @@ title: Zoja
 contentType: prose
 ---
 
-  
-
 Z pedagogů se mne zastala jedině Zoja. To byla vedoucí našeho kruhu, něco jako třídní učitel. Mezi čtyřma očima mi řekla, že je Krátký naprostý idiot. Potěšilo mne to, ačkoli přesně tohle říkala Zoja o kaž­dém. Když se s námi na začátku prvního semestru poprvé setkala, rozhlédla se po učebně a komentovala poměr mezi chlapci a dívkami takhle: „Zase samý slepice.“ Chmurně se rozhlédla po lavicích a spustila: „Jmenuji se Zoe Žáčková a tohle blbý jméno jsem si nevybrala sama. Kdyby bylo podle mého, vybrala bych si asi něco lepšího, třeba Brigitte Bardot nebo Marilyn Monroe. Ale teď mi je pětapadesát a už je to stejně fuk. Budu vám přednášet staroslověnštinu a později staročeštinu a ještě později historický vývoj jazyka. Většina z vás přese mne na zkouškách dříve či později neprojde a bude si muset najít jinou práci, přiměřenější velikosti orgánu, který nosíte v hlavách.“ Varovali nás, že budeme mít za třídní starou, ironickou bábu, která jezdí na třiapůle, ale tohle jsme nečekali.
 
 Na třiapůle Zoja skutečně jezdila, dojížděla na ní z Prahy. Byla to modrá Honda a Žáčková si ji koupila, když jí vyšla skripta o staroslověnštině pro bohemisty na německých univerzitách. Ani komunisti nedokázali zabránit tomu, aby za to nedostala spoustu marek. Honda byla na světě a zbylo i na úžasnou přilbu značky Bell se zabudovaným rádiem, což byl tenkrát vrchol vývoje. Plexisklový štít se vyklápěl nahoru a Zoja ho mívala vyklopený pořád, protože za jízdy ráda kouřila.

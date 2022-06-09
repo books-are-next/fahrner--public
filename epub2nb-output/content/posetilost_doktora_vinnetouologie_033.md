@@ -3,8 +3,6 @@ title: Automaty
 contentType: prose
 ---
 
-  
-
 Dědkovi do baru nainstalovali hrací automaty. Tou dobou u nás v Ústí rostly nové hospody jak houby po dešti a automaty měly přilákat ubývající konzumenty. Jenže i v ostatních podnicích se objevily hrací automaty, takže do baru k Dědkovi se zákazníci nevrátili. A tak si začal hrát s automaty sám. Zpočátku jen sem tam pro ukrácení chvíle, ale nakonec jim úplně propadl.
 
 Jednoho pozdního večera a noci Dědek naházel do automatů všechny své peníze a v zoufalé víře, že je přece musí dostat z naditých mašin zase zpátky, do nich naházel i celou tržbu, která nebyla jeho, stejně jako nebyl jeho bar, v němž byl jenom zaměstnán.

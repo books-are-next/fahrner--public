@@ -3,8 +3,6 @@ title: Praxe
 contentType: prose
 ---
 
-  
-
 Bylo jaro, poslední jaro, které s námi Dědek studoval na fakultě, i když už nechodil na přednášky a na semináře jako my, ale docházel na ústecké gymnázium v Jateční ulici na praxi. Měl obrovský přehled a navíc okouzloval svými naškrobenými košilemi, takže mu ještě během té praxe nabídli místo, a dokonce by mu zařídili odklad nástupu na vojnu.
 
 Není divu, že toho dne byl Dědek v dobrém rozmaru. Měl zrovna suplovat tělocvik, před hodinou si prohlížel v tělocvičně nářadí a úplně v koutě našel zastavěný obrovský odrazový můstek. Vzpomněl si najednou na Bláhu a hned se rozhodl, že můstek vyzkouší. Postavil jej doprostřed tělocvičny, za něj švédskou bednu a v přiměřené vzdálenosti asi tři žíněnky. Na začátku hodiny vybral jednoho odvážlivce a sám se postavil za švédskou bednu, aby mu mohl dát záchranu. Úplně se ale přepočítal: můstek katapultoval žáka vysoko do vzduchu, ten přelétl nad švédskou bednou a marně plácal rukama do vzduchu. Zkoprnělý Dědek pochopil, že žíněnky kladl na zem úplně zbytečně. Rychle se vymrštil a stihl tu živou střelu chytit za kotník, aby se nerozplácla o zeď na konci tělocvičny. Když se sebrali ze země a zjistili, že ani jeden nemá nic zlomeného, přísahal si Dědek, že už nepomyslí na Bláhu a nebude dělat blbiny, aby nepřišel o nabídku.

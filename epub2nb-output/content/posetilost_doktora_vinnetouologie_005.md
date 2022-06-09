@@ -3,8 +3,6 @@ title: Porta
 contentType: prose
 ---
 
-  
-
 Jednoho dne jsem se rozhodl, že je načase poznat svět. A na základě písniček z rádia jsem měl dojem, že bude nejlepší poznat ho jako tramp. Otrhal jsem ozdoby ze starého tátova klobouku a nad párou z něj udělal úžasnou hučku, obarvil v duze starou košili i džíny, naučil se balit spacák do celty. A zamířil jsem na folkový festival do Plzně. Stopem, jako správný tramp. Jenže v té výstroji jsem vypadal spíš jako bláznivý vodník a dlouho mi nikdo nechtěl zastavit.
 
 Když jsem konečně po půl dni snažení překonal asi desetinu vzdálenosti a přesouval se na další výpadovku, potkal jsem sevřený útvar dětí ze školky, který měl namířeno na procházku. Jedno dítě náhle vystoupilo z řady, dlouze si mne prohlíželo a pak zakřičelo: „Soudružko, podívejte, Rusák!“

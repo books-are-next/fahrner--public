@@ -3,8 +3,6 @@ title: Vaňov
 contentType: prose
 ---
 
-  
-
 Za to, že plukovník Ripl jel se Zojou na její mašině až na daleké Slovensko, mu profesorka slíbila, že s ním stráví Štědrý večer, ovšem s podmínkou, že si nedají žádné dárky.
 
 Když už seděli dlouho proti sobě, tak dlouho, jak proti sobě při žádné z návštěv neseděli, došla jim řeč, protože Zoja nevěděla nic o motorech vrtulníků a Ripl si zase dost dobře neuměl představit, co by se mohlo odehrávat ve staroslověnštině.

@@ -3,8 +3,6 @@ title: Stříbrný vítr
 contentType: prose
 ---
 
-  
-
 Za několik dní nato byla důležitá porada. Mířil jsem ke škole, čím blíž škole, tím více žáků mne zdravilo a já se snažil nedávat na sobě nic znát. Samozřejmě jsem si byl jist, že se to prolátlo a všichni se mi za zády smějí. Čekaly mne dvě hodiny, které jsem měl odučit, a hlavou se mi honilo, kde vezmu sílu přečkat je se ctí.
 
 Nakonec to bylo za mnou. Zbývala porada. Seznámil jsem kolegy s plánovanými akcemi, změnami a přesuny a otevřel diskusi. Nikdo se nepřihlásil, snad mne chtěli šetřit. Jenom Hrdlička se mnou neměl slitování a vzal si slovo. Mluvil a mluvil. Seděl jsem a čas utíkal a mně to přišlo jako celá věčnost. Vzduch v místnosti houstl, a tak jsem najednou vstal a otevřel okno. Otevřel jsem dokořán, zhluboka se nadýchl a na ploché střeše protějšího domu spatřil něco, co mne přinutilo na Hrdličku úplně zapomenout.

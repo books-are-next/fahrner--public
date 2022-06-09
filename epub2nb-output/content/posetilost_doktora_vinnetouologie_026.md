@@ -3,8 +3,6 @@ title: Aura
 contentType: prose
 ---
 
-  
-
 Každý z nás se s tím zjevením vyrovnával po svém, nejživelněji samozřejmě Bláha. Slídil a slídil po meditačních kurzech, po kurzech jógy, zenu a kdovíčeho ještě. Dalo mu to velkou práci, protože v té době vědělo o takových věcech jen pár zasvěcených, literatura skoro nevycházela a také to nebyl takový kšeft jako dnes.
 
 Do začátku léta přes Bláhu přelétla lavina kurzů, ale odpověď na svoje otázky v nich stejně nenašel.

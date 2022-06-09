@@ -3,8 +3,6 @@ title: Lopatkiáda
 contentType: prose
 ---
 
-  
-
 Jediné, co jsem dlouho věděl o spolubydlícím, který spával na palandě nade mnou, bylo, že je vášnivý kuřák. Kouříval silné cigarety, které nesměly mít filtr, a kdokoli se zeptal proč, zařval na celé kolo, že nesnáší cezený prožitky. Když nesehnal svoje cigarety, žmoulal chvíli filtr mezi prsty, dokud se trochu nepovysunul a nešel vytáhnout zuby. Filtry plival do popelníků, takže člověk při pohledu na takhle zaplněný popelník v nějaké hospodě věděl, že soused nebude daleko. Filtrů se zbavoval netrpělivě, skoro horečnatě, a po prvním silném vtažení kouře většinou vypouštěl i neuvěřitelně silný výkřik „Bláááhóóó!!!“, který mu vynesl přezdívku.
 
 Připomínal elektrické vedení nejen výškou, ale i tím, že nedokázal chvíli zůstat v klidu. Jeho tělem stále procházely záškuby, jako kdyby dostával rány proudem, a při hovoru neuvěřitelně vytahoval obočí a koulel velikýma očima. Jeho obličej přitahoval už tím, jak na něm bylo stále všechno v pohybu, a když se po letech jedna půlka přestala hýbat, dlouho jsem si nemohl zvyknout.

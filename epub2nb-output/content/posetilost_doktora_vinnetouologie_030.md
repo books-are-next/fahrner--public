@@ -3,8 +3,6 @@ title: Šachy
 contentType: prose
 ---
 
-  
-
 Hrdlička se nikdy nesmířil s tím, že mu Dědek vyfoukl místo, které měl na dosah, ani že jsem mu pak to samé udělal já. Nevynechal jedinou příležitost, aby mne nevyhazoval ze sedla, nebo mne alespoň nepopíchl. Trvalo to už moc dlouho a tím to právě bylo úmorné. Možná by se mu to povedlo, ale já měl jedno veliké štěstí. Školy tou dobou už měly značnou ekonomickou samostatnost a já, vychovaný jako hokynářský synek, jsem dokázal hospodařit líp, než si vedli na ostatních školách. Bylo to dost viditelné, abych díky tomu měl hodně zastánců.
 
 Navíc jsem se naučil před každou důležitou poradou zajít s kolegy do klubu, kde jsme spoustu věcí probrali dopředu. Hrdlička se jich z hrdosti neúčastnil a pak, když se věci probíraly, přišlo spoustě lidí jako zdržování se jimi podrobně zabývat, a Hrdličkovi, který je chtěl rozpitvávat, to dávali najevo.

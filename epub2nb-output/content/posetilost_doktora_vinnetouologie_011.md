@@ -3,8 +3,6 @@ title: Mlýn
 contentType: prose
 ---
 
-  
-
 Když jsem se plný naděje přistěhoval do Ústí na kolej, rozmisťovaly se po Evropě rakety. V Německu je rozváželi Američani a neobešlo se to bez velikých protestů. A u nás zase Rusové. Aby se to bez protestů obešlo, komunistické buňky ve fabrikách a na školách organizovaly petice a podpisové archy a večer ve zprávách pak hlásili, že už osmdesát procent obyvatelstva doručilo vládě svou podporu.
 
 A docent Krátký viděl další příležitost, jak se před těmi nahoře osvědčit. Zrušil na jeden den výuku a svolal všechny studenty i profesory do veliké auly. Sám stál u dveří a každému, kdo vcházel dovnitř, podal pero k podpisu do prezenční listiny s poznámkou, že neomluvená nepřítomnost bude trestána. Potom tlustou knihu sklapl a přešel k řečnickému pultu, aby nám vysvětlil všechny výhody raket kolem nás. Na závěr vyjádřil radost, že si rozumíme, takže považuje prezenční listinu za naši společnou petici vládě, aby ruské rakety nechala nainstalovat.

@@ -3,8 +3,6 @@ title: Labuť
 contentType: prose
 ---
 
-  
-
 Dědek nakonec neměl sílu Bláhu vyhodit a kolo si s Monikou nechali. Udělalo mi to obrovskou radost. Věděl jsem, jakou práci dá Monice prát pořád dokola Dědkovy aristokratické košile, ale fandil jsem Bláhovi, protože jsem s ním zažil něco, co mě k tomu nutilo. Stalo se to na začátku zimy u železničního mostu, přes který se chodí z města na střekovskou stranu, kde jsme v lázních kousek nad Setuzou mívali plavání.
 
 Jednou jsme se s Bláhou dívali na řeku směrem ke zdymadlu. Hladinu pomalu potahoval led. V místech, kde voda proudila pomaleji, už byl pořádně tlustý. Bláha mohutně šlukoval, aby se zahřál, a nahlas přemýšlel, kdo bude letos nad zdymadlem prorážet led, když je teď Pilot čerstvě v důchodu.

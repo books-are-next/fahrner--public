@@ -3,8 +3,6 @@ title: Svatební cesta
 contentType: prose
 ---
 
-  
-
 Po prázdninách jsem nastoupil jako učitel českého jazyka a tělocviku na základní školu na Severní terase. O bydlení se mi postaral školský úřad, ale ubytovny byly přesně na opačném konci města ve velké vile u Labe, kde jsem se tísnil na pokoji ještě se dvěma dalšími učiteli. Na kolejích na Klíši Jana také neměla soukromí, takže nám zase zbývala jenom ta prkenná bouda nahoře v Jetřichovicích. Když jsem se ptal na školském úřadě na byt, řekli mi, že přednost mají manželské páry.
 
 Nás už beztoho napadlo, že se vezmeme, a Jana plánovala na konci zimního semestru přejít na dálkové studium, nastoupit do práce, a kdybychom se nechali oddat, třeba bychom nakonec dostali i ten byt.

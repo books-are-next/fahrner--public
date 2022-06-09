@@ -3,8 +3,6 @@ title: Lustr
 contentType: prose
 ---
 
-  
-
 Jednou zase Monice a Dědkovi pomáhal Bláha s Markétou. Jenže když ji koupal před spaním, zrovna když ji vytáhl z vany a chystal se ji zabalit do osušky, se náhle zablesklo, Bláhu něco s třesknutím udeřilo do hlavy a byla tma. V prvním okamžiku nevěděl, jestli nenastal konec světa, jestli už třeba nemá po smrti, ale pak se vzpamatoval a rozrazil dveře do kuchyně, takže se v koupelně udělalo alespoň šero, a Bláha viděl, že na zemi se válí tyčka z lustru a spousta střepů ze stínidla a pod těmi střepy je kaluž krve a v té kaluži leží Markéta. Popadl ji do náruče a utíkal s ní k nemocnici, běžel s Markétou v náručí a cítil, jak mu skrz oblečení prosakuje krev.
 
 Když se Bláha kdysi učil běhat, jako běhají v Himalajích poslíčci mezi kláštery, říkal, že nikdy předtím tak neběžel, že cítil takovou sílu, jako by se přepnul na silnější zdroj. Ale teď běžel ještě rychleji, přestože měl pocit, že stojí na místě a omdlévá, že jenom plouží za sebou nohy ochromené hrůzou.

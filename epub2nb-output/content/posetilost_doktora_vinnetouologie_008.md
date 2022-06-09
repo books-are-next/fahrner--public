@@ -3,8 +3,6 @@ title: Kotva
 contentType: prose
 ---
 
-  
-
 Jeli jsme po břehu Labe a v jednom okamžiku musel řidič zastavit a přesvědčit se, že jsme stále ještě na silnici. Najednou se mlha jako mávnutím proutku rozestoupila a my vjížděli do přístavní čtvrti Vaňov. Bláha mne vystrkal hned na první zastávce, která se jmenovala U Kotvy.
 
 Byla pojmenovaná stejně jako restaurace. Na Vaňově byl totiž přístav pro tlačné čluny, které vozily dnem i nocí uhlí do stovku kilometrů vzdálené elektrárny Chvaletice. Posádky pracovaly v turnusech a během nich dodržovaly bezpečnostní přestávky, pro které byla zřízena ubytovna v prvním patře nad restaurací.
