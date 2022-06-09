@@ -3,8 +3,6 @@ title: Krásný večírek
 contentType: prose
 ---
 
-  
-
 Bláhovi zbyla z letní brigády do začátku semestru trocha peněz a moc ho mrzelo, že jsme nemohli s Dědkem oslavit za ty peníze státnice. Moc ho mrzelo, že mu nemůže oplatit výlet s růžovým roudnickým. Jednou přilítl celý rozzářený a řval už z dálky, že má úžasnej plán. Ten den na nástěnkách vedle děkanátu vyvěsili termíny povinných kurzů a Bláha tam vyčetl, že pojedeme s katedrou tělocviku koncem září do Tater a budeme bydlet v kempu u Liptovské Mary, kousek od Dědkova učiliště. Těsně před odjezdem dokonce katedra přibírala několik studentů na doplnění volných míst, takže s námi mohla jet i Monika.
 
 Na kurzech byla zakázaná konzumace alkoholu, a tak se Bláhův sen oplatit Dědkovi procházku s roudnickým brzy rozplynul. Když si to přihasil k autobusu s obrovským ruksakem, ve kterém to cinkalo lahvemi, nechal vedoucí zájezdu Bláhu všechny lahve vyložit a dohodl se s řidičem, že budou celou dobu zamčené u nářadí.

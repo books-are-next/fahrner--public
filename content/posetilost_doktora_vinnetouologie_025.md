@@ -3,8 +3,6 @@ title: Na Mariánské skále
 contentType: prose
 ---
 
-  
-
 Ještě jednou jsme se pokusili seřídit svět na naše oktanové číslo a vyrazili s Bláhou potupit Krátkého tank, památník tankové bitvy, který museli studenti vybudovat během povinných letních brigád, ačkoli je to jasná pošetilost. I Zoja kdysi řekla, že až začnem dělat něco pořádného, přestanou nás ty blbiny bavit.
 
 Seděli jsme pod tankem, podávali si Klášterní tajemství, které Bláha vytáhl z ruksaku, a nakonec to nemusel být špatný dýchánek, jenže ta povinnost něco vyvést Krátkému nám najednou kazila náladu.

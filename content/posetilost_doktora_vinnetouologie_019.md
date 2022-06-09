@@ -3,8 +3,6 @@ title: Jana
 contentType: prose
 ---
 
-  
-
 Opravný termín státnic měl Dědek začátkem září, ale velitel vojenského učiliště ho nechtěl pustit, protože to považoval za soukromou věc. V září se navíc naplno rozjížděla na učilišti výuka a přišla spousta patnáctiletých prváků. Těžko si zvykali na vojenské prostředí, byla s nimi práce. Dědek, který s nimi tu práci měl, si samozřejmě také těžko zvykal, že má místo bílých košil najednou zelené, i když Bláha tvrdil, že zrovna jemu by nemělo dělat problém rovnat si věci pěkně do komínku. Kromě toho chodil do služeb na bráně a v noci hlídal autopark nebo muniční sklad jako každý jiný voják, takže často kolem nich prochodil celou noc s nabitou pistolí za pasem a skripty v ruce, protože jindy by se k učení nedostal.
 
 Když přijel do Ústí na opravný termín, sotva nám stihl potřást rukou. Státnice tentokrát udělal, ale žádná oslava se nekonala, protože chtěli být s Monikou, která náhlé odloučení těžce snášela, chvíli sami. V jedenáct už mu odjížděl noční vlak, aby ráno nevyspalý dorazil v Mikuláši na vyučování.

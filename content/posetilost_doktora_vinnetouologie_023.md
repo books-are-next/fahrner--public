@@ -3,8 +3,6 @@ title: Svatba
 contentType: prose
 ---
 
-  
-
 Přešlo těžké léto, přišel podzim a Dědek s Monikou se brali. Svatba se chystala na střekovské radnici a už několik dní předem zašel Dědek za svými rodiči, půjčil si od nich auto a vyvezl nás na výlet na Kamýk, aby získal v řízení trochu větší cvik. Po výletě dokonce velmi odpovědně pověsil klíčky na věšák v předsíni a všem nám je ukazoval a opakoval pořád dokola: „Tady visí klíčky od auta, kdybychom je pak v tom zmatku náhodou hledali, alespoň jeden si vzpomene.“
 
 Dědek byl z nás zkrátka nejpraktičtější. Trval také na tom, abychom se sešli den předem u nich a společně si zkontrolovali, jestli máme v pořádku oblečení. Každý jsme si je pověsili na ramínko do skříně a Dědek nám kladl na srdce, že všechno oblečení je v té skříni, a kdyby někdo hledal ráno v tom zmatku kravatu nebo knoflíčky do manžet, ví, kde je najde. Horlivě jsme přikyvovali. Monika byla sice už docela v pořádku, ale bylo jasné, že ji chce Dědek ušetřit předsvatebních nervů.

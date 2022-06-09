@@ -3,8 +3,6 @@ title: Index
 contentType: prose
 ---
 
-  
-
 Skončily prázdniny a zvolna se rozjížděl zimní semestr, když mne Dědek požádal o malou službu. Začínal jsem tou dobou třetí rok na Brněnské, přestože jsem měl nárok bydlet v nové koleji na Klíši. Jenže Krátký nechal vstupní halu přetnout mříží sahající až do stropu a v ní zůstal jenom úzký průchod kolem vrátnice. Člověk musel přijít až k vrátnému a ukázat průkaz. Vrátný zmáčkl knoflík, dveře zabzučely a otevřely se.
 
 Já na nové koleje denně docházel, protože tam byla veliká moderní tělocvična a sídlila tam katedra tělocviku. Ti z nás, co neměli ubytovací průkazku, mohli do šesti do večera procházet vrátnicí na index. Právě o něj mne Dědek požádal, prý jsem se podobal jednomu známému, který byl dlouho na vojně a konečně mohl přijet za svojí holkou, jež studovala u nás na fakultě a hodlala ho propašovat na pokoj.

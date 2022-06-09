@@ -3,8 +3,6 @@ title: Magistři
 contentType: prose
 ---
 
-  
-
 Jednoho dne přišel oběžník, že v rámci změn ve školství budou naše staré tituly nahrazeny jednotným titulem „magistr“. Byl pátek, Bláha za mnou přiběhl do školy a měl obě oči navrch hlavy. Ptal se mne, jestli chápu, že je to pro nás hrozně důležitý, zásadně, existenčně důležitý. Zase po dlouhé době strašně křičel, a když o nás mluvil jako o vinnetouolozích, tajemnice na mne přes stůl udiveně koukala.
 
 „Chápeš, že ViDr. vznikl jako protiklad titulu PaedDr., který kdysi vybojoval Krátký?! Co bude s vinnetouologií, když nemá najednou svoji odvrácenou, temnou stránku?!“ řval. Jana byla na školení v Ma­ďarsku, syn na škole v přírodě a já se nechal přemluvit, že ten Krátkého konec důstojně oslavíme. Rovnou ze školy mne dotáhl na autobusové nádraží, bublal nadšením a o akci mluvil jako o tajném výletě.

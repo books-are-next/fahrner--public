@@ -3,8 +3,6 @@ title: Doktor vinnetouologie
 contentType: prose
 ---
 
-  
-
 Jaro bylo v plném proudu, když mi Dědek vzkázal, že se mám dostavit na zkoušku z vinnetouologie. Měl jsem všechny zkoušky hotové a mohl v Mayovi ležet celé dny a noci, ale nakonec jsem svých znalostí nevyužil. Když jsem totiž podruhé v životě uviděl přístavní krčmu Na Kotvě, vyšňořenou bílými ubrusy, a proklouzl dírou za výčepem v černém obleku do Žumpy, oznámil mi Dědek jménem zkušební komise, že mi udělují čestný doktorát za morální bezúhonnost a přínos světové vinnetouologii. Nechápal jsem, co to má znamenat, ale už mi podávali přes stůl certifikát.
 
 Chtěl jsem se zeptat, v čem můj přínos spočívá, ale jeden ze studentů mne poučil, že zkoušky probíhají podle přísných pravidel, a ta nařizují objednat komisi pivo, a nedělat hloupými otázkami z tak důležité zkoušky holubník. Teprve nad pivem jsem se dozvěděl, že je Kotva nabitá studenty. Celá zkušební komise včetně Dědka se totiž chystá k promocím, a není jasné, jestli se doktoráty budou udělovat i po jejich odchodu. Jelikož na čestné doktoráty komise jaksi pozapomněla, chtěla si to alespoň jednou ozkoušet. Vybrala mne, protože po fakultě se stále ještě probíral můj případ s Krátkým. Dědek jako předseda se prý zdržel hlasování, aby rozhodnutí bylo objektivní, a mně se ulevilo, že nevyužil svého vlivu, aby mi uštědřil další satisfakci.

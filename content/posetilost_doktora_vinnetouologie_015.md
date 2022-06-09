@@ -3,8 +3,6 @@ title: Roudnické rosé
 contentType: prose
 ---
 
-  
-
 Dědkovi se ulevilo. Říkal, že jsem jeho zásluhou málem z fakulty vyletěl a teď jsem se trošku jeho zásluhou na fakultě udržel. Na důkaz radosti koupil několik lahví roudnického zámeckého rosé, které se prodávalo v Ústí na jediném místě, v Zelenině naproti hlavnímu nádraží. Ty lahve dal jednoho dne časně z rána do baťohu a odjel prvním vlakem do Děčína a odtud dělnickým autobusem za Hřensko, sešel po dlouhých kamenných schodech dolů k jezu u mlýna, vytáhl první lahev vína, omotal ji žlutou suchou trávou, která tam trčela ze sněhu, a schoval ji do skuliny pod starým mlýnským kamenem. A pak šel dál a dál údolím říčky Kamenice a ukládal je v dutém pařezu, ve skalní rozsedlině, ve vykotlaném břehu zamr­z­lého potoka – a všechno pečlivě zaznamenával do mapy, kterou pak ve vlaku na zpáteční cestě dvakrát obkreslil.
 
 Ty mapy nám předal na ústeckém nádraží, kde se k nám přidal jakoby nic a předstíral, že právě vylezl z postele. Bláha se do své mapy celou cestu vlakem nevěřícně mračil a rozzářil se, teprve když seběhl s cigaretou v puse nedočkavě schody ke mlýnu a zamával lahví nad hlavou. A řval nadšením, když Dědek vytáhl z batohu tři broušené skleničky a my procházeli s roudnickým rosé v ruce údolím k další značce na mapě. A když bylo za námi těch lahví několik, spustil na roudnické zámecké celé ódy a řval, že se zrovna chystal přestat pít, ale tohle skvělý víno mu úplně povyráželo všechny jističe. Dědek se na nás díval a jakoby plaše se usmíval a já cítil tu přetrvávající vzájemnost, chuť udělat si radost.

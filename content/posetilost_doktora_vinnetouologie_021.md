@@ -3,8 +3,6 @@ title: Ruka
 contentType: prose
 ---
 
-  
-
 Dědek strávil s Monikou ještě jednu noc. Vrátili jsme se do Ústí a Bláhovi pusa později úplně splaskla, jen spodní čelist zůstala trochu vyviklaná. Hlavně zpočátku stačilo, aby se zakousl třeba do tvrdšího rohlíku, a musel si ji rukou vracet zpátky. Bláhu to štvalo, i když to šlo docela lehce. A ještě po letech, když měl rande se svou budoucí ženou a poprvé se ji pokusil políbit, tu romantickou chvíli přerušilo tlumené lupnutí a Bláha stál proti své milované s čelistí skoro na rameni.
 
 Vídali jsme se tou dobou často. Asi jsme oba potřebovali trošku zahnat smutek po Dědkovi. Společně jsme chodili i na nepovinný seminář k Zoje, která na nás pokaždé už z dálky nadšeně volala: „Áááá, už jsou tady ti moji dva blbouni.“ Rozebírala s námi staré texty plné viny a trestu, odpuštění, pokory a všelijakých zjevení.

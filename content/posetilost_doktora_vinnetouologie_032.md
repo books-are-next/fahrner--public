@@ -3,8 +3,6 @@ title: Hospoda
 contentType: prose
 ---
 
-  
-
 Sešli jsme se po hodně dlouhé době. Sraz byl na Vaňově, přišel Bláha se ženou, já, moje žena a Monika s Markétou. Prošli jsme mezi domy a stoupali lesem k vodopádu, kolem kterého jsme vylezli nahoru mezi vrcholky Českého středohoří. Mířili jsme k Milešovce cestou procházející starými, dávno opuštěnými sady. Z pokroucených stromů opadávalo poslední listí a šustilo pod nohama. Od posledního setkání Bláhy a Markéty uplynul dlouhý čas.
 
 Všechno zorganizovala Monika, protože doufala, že se ti dva smíří, nebo že spolu alespoň promluví. Bláha na zastávce autobusu, na které jsme se v Ústí setkali, podal Markétě ruku stejně jako všem ostatním, a dokonce se na ni usmál, jak mu to jen dovolovala nehybná polovina obličeje. Teď ale kráčeli ti dva daleko od sebe, a kdykoli se naše skupinka zastavila a zase rozešla, vzdálenost jim zůstávala.
