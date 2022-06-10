@@ -3,6 +3,8 @@ title: Hospoda
 contentType: prose
 ---
 
+<section>
+
 Sešli jsme se po hodně dlouhé době. Sraz byl na Vaňově, přišel Bláha se ženou, já, moje žena a Monika s Markétou. Prošli jsme mezi domy a stoupali lesem k vodopádu, kolem kterého jsme vylezli nahoru mezi vrcholky Českého středohoří. Mířili jsme k Milešovce cestou procházející starými, dávno opuštěnými sady. Z pokroucených stromů opadávalo poslední listí a šustilo pod nohama. Od posledního setkání Bláhy a Markéty uplynul dlouhý čas.
 
 Všechno zorganizovala Monika, protože doufala, že se ti dva smíří, nebo že spolu alespoň promluví. Bláha na zastávce autobusu, na které jsme se v Ústí setkali, podal Markétě ruku stejně jako všem ostatním, a dokonce se na ni usmál, jak mu to jen dovolovala nehybná polovina obličeje. Teď ale kráčeli ti dva daleko od sebe, a kdykoli se naše skupinka zastavila a zase rozešla, vzdálenost jim zůstávala.
@@ -30,3 +32,5 @@ Monika se zvedla a začala tančit. Dlouho jsem se na ni upřeně díval. Zest�
 Bláha náhle vstal, postavil se před Markétu a vyzval ji k tanci. Houslista, který do té chvíle vypadal, že nás vůbec nevnímá, okamžitě spustil příhodnější skladbu. Markéta se zvedla, nechala se sevřít v náruči a tančila s Bláhou kolem nás. Po nějaké době spustil hostinský ruce, položil nástroj na gauč, zavřel za sebou dveře a zaujal své místo na gauči.
 
 Nechtěli jsme to tak nechat. Dveře jsme si podruhé netroufli otevřít, ale ťukali jsme na sklo a dlouho tleskali. Nakonec se stařík přeci jenom zvedl a malininko se uklonil. Než jsme se vrátili zpátky ke stolu, ve výčepu se zhaslo. Nikdo nemluvil o placení ani nás nevyháněl a nezamykal hospodu. Možná už stařík potřeboval rychle spát a vykašlal se na pár piv. Ale kdoví, možná zčistajasna zmizel, možná byl zakletý a potřeboval jeden dobrý skutek.
+
+</section>

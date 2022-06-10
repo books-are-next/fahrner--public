@@ -3,6 +3,8 @@ title: Cirkus
 contentType: prose
 ---
 
+<section>
+
 Jednoho dne jsem dostal poštou lístek do cirkusu, který zrovna přijel do Ústí. Na zadní straně bylo pozvání od Bláhy. Byl dlouho pryč. Strávil na cestách přibližně tolik času, kolik ho potřebují na zoxidování staré hliníkové dráty.
 
 Když před lety k cirkusu nastoupil, překvapilo ho, jak všichni kolem něj svou práci milují. Jinak by těžko dokázali dřít od rána do večera. Stále se stěhovali z místa na místo a pokaždé znovu bylo potřeba vyběhat spoustu povolení, zajistit připojení na vodu, elektřinu, nakoupit další náklaďák žrádla pro zvířata a najít místo, kam se uklidí všechno, co se po nich vykydá, předtím vylepit plakáty, zajistit reklamu v tisku, do toho postavit stan s tyčemi a provazy…
@@ -18,3 +20,5 @@ Od toho okamžiku ho to táhlo za námi. Musel nám to přece říct. Ale cirkus
 Už před produkcí se potkal Bláha s Monikou, Dědkem a jejich Markétou a zarazilo ho, že jsme nepřišli spolu. Když zjistil, že je Dědek barmanem, prohlásil, že tak si vždycky představoval blaho, ale v duchu byl zoufalý. Jak nám mohl vyprávět, v čem našel štěstí, když jsme nedokázali ani držet pohromadě?
 
 Nevzdal se ale naděje, v Ústí zůstal na podnájmu a většinu času trávil buďto u nás, nebo v Dědkově bytě na Klíši, kde se staral o Markétu. Pokoušel se nás dát zase dohromady a čekal na vhodnou příležitost. Netušil, že se to čekání tak protáhne.
+
+</section>
